@@ -1,6 +1,4 @@
 
-
-
 **Меня зовут Mikhail Polovnikov**
 
 **Telegram:** [написать](https://t.me/@msp1001)  
